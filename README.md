@@ -1,1 +1,1 @@
-# COUSIN.github.io
+# COUSIN
